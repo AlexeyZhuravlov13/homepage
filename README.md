@@ -9,4 +9,3 @@
 * https://www.instagram.com/sworn_ryu/
 
  > ― I do not compete with others, the only competition that challenges me is myself. As a fighter, friend and an employee I am known as contemplative, tortured and driven.
-🧙Hocus-pocus!
